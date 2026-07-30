@@ -1,7 +1,6 @@
-
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=pinata-yatta.visitor-badge&left_text=Candy%20Pinata&left_color=%23EBB078&right_color=%23ED7C9C&query_only=true)
-
-
+<div align="center">
+<p align="center">
+<img src="https://visitor-badge.laobi.icu/badge?page_id=pinata-yatta.visitor-badge&left_text=Yummy%20candyes&left_color=%23E4AF7C&right_color=%23D7718E" alt="visitor badge"/>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=D770A3&width=462&lines=Candy+candy+caNDY%2C+CANDY+FOR+ALL!!!;AHAHAHAaaa...+Thought+of+something+funny!;BACKFLIPS%2CFRONTFLIPS%2CSUPER+COOL+FLIPS!!!;PHEW!Good+thing+my+tail+hasn't+been+TANGLED!)](https://git.io/typing-svg)
 
