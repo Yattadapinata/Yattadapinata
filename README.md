@@ -19,7 +19,7 @@ creds to @RingmasterAI for table text
     <th>
       $\color{#303030}{\textsf{ABOUT ME!!}}$ <br>
       <br>
-  $\color{#FDA6E0}{\textsf{call me star or michu/michura}}$ <br>
+  $\color{#FDA6E0}{\textsf{call me star or me chiku/chikura}}$ <br>
   $\color{#CBDCF6}{\textsf{ֆɦɛ / ɦɛʀ / ȶɦɛʏ⋆๑}}$ <br>
    $\color{#FEF3CE}{\textsf{ᴘᴀɴꜱᴇxᴜᴀʟ !! ꔛ}}$ <br>
   $\color{#FEF3CE}{\textsf{нєу ѕιgη αтα !!}}$ <br>
@@ -38,9 +38,9 @@ creds to @RingmasterAI for table text
       <br>
 $${\color{#B05C85} Dark pro shippers}$$
 
-  $\color{#B05C85}{\textsf{ ppl who copy me and my skins}}$ <br>
-   $\color{#B05C85}{\textsf{ qwel supporters}}$ <br>
-  $\color{#B05C85}{\textsf{ rage shippers}}$ <br>
+   $\color{#B05C85}{\textsf{ ppl who copy me and my skins}}$ <br>
+ $\color{#B05C85}{\textsf{ qwel supporters}}$ <br>
+$\color{#B05C85}{\textsf{ rage shippers}}$ <br>
 </th>
 </tr>
 </table>
