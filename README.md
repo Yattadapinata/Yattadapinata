@@ -1,5 +1,5 @@
 <!--
-creds to @RingmasterAI for table tex
+creds to @RingmasterAI for table text
 
 -->
 <div align="center">
@@ -35,15 +35,18 @@ $${\color{#B05C85}Star !}$$
 <table>
   <tr>
     <th>
-      $\color{#303030}{\textsf{MY DNI LIST !}}$ <br>
+      $\color{#303030}{\textsf{MY DNI LIST}}$ <br>
       <br>
-${\color{#B05C85}Dark.pro shippers}$$ <b>
-  $\color{#B05C85}ppl who copy my skins}$$ <br>
-   $\color{{#B05C85}I dont supporters qwel so , qwel supporters}$$ <br>
-  $\color{{#B05C85}Rage shippers}$$ <br>
- </th>
+$${\color{#B05C85} Dark pro shippers}$$
+
+  $\color{#B05C85}{\textsf{ ppl who copy me and my skins}}$ <br>
+   $\color{#B05C85}{\textsf{ qwel supporters}}$ <br>
+  $\color{#B05C85}{\textsf{ rage shippers}}$ <br>
+</th>
 </tr>
 </table>
+<p align="center">
+<img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
  <p align="center">
 
