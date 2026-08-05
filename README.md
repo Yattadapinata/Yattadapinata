@@ -19,7 +19,7 @@ creds to @RingmasterAI for table text
     <th>
       $\color{#303030}{\textsf{ABOUT ME!!}}$ <br>
       <br>
-$${\color{#B05C85}Star !}$$
+$${\color{#B05C85} Call me Star or Michu michura !}$$
 
   $\color{#CBDCF6}{\textsf{ֆɦɛ / ɦɛʀ / ȶɦɛʏ⋆๑}}$ <br>
    $\color{#FEF3CE}{\textsf{ᴘᴀɴꜱᴇxᴜᴀʟ !! ꔛ}}$ <br>
