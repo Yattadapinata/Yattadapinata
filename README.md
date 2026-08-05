@@ -32,6 +32,12 @@ $${\color{#B05C85}Star !}$$
 <p align="center">
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
-
-<p align="center">
+<table>
+  <tr>
+    <th>
+      $\color{#303030}{\textsf{MY DNI LIST !}}$ <br>
+      <br>
+$${\color{#B05C85}Dark.pro shippers}$$ <br>
+ $\color{#FEF3CE}{\textsf{ppl who copy my skins}}$ <br>
+  <p align="center">
 
