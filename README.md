@@ -38,6 +38,8 @@ $${\color{#B05C85}Star !}$$
       $\color{#303030}{\textsf{MY DNI LIST !}}$ <br>
       <br>
 $${\color{#B05C85}Dark.pro shippers}$$ <br>
- $\color{#FEF3CE}{\textsf{ppl who copy my skins}}$ <br>
-  <p align="center">
+ $\color{{#B05C85}{\textsf{ppl who copy my skins}}$ <br>
+ $\color{{#B05C85}{\textsf{I dont supporters qwel so , qwel supporters}}$ <br>
+ $\color{{#B05C85}{\textsf{Rage shippers}}$ <br>
+  align="center">
 
