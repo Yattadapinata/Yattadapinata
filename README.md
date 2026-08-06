@@ -36,8 +36,7 @@ creds to @RingmasterAI for table text
     <th>
       $\color{#303030}{\textsf{MY DNI LIST}}$ <br>
       <br>
-$${\color{#B05C85} Dark pro shippers}$$
-
+ $\color{#B05C85}{\textsf{ Pro/Dark shippers}}$ <br>
  $\color{#B05C85}{\textsf{ ppl who copy me and my skins}}$ <br>
  $\color{#B05C85}{\textsf{ qwel supporters}}$ <br>
 $\color{#B05C85}{\textsf{ rage shippers}}$ <br>
