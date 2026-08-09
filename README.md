@@ -31,6 +31,14 @@ creds to @RingmasterAI for table text
 <p align="center">
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
+ᴍʏ ꜰᴀɴᴅᴏᴍᴇꜱ ! :
+
+$\color{#FECEDE}{\textsf{​🇩​​🇦​​🇳​​🇩​​🇾​​🇸​ ​🇼​​🇴​​🇷​​🇱​​🇩​}}$ <br>
+$\color{#FECEDE}{\textsf{𝐦𝐮𝐫𝐝𝐞𝐫 𝐝𝐫𝐨𝐧𝐞𝐬}}$ <br>
+$\color{#FECEDE}{\textsf{𝓉𝒶𝒹𝒸}}$ <br>
+$\color{#FECEDE}{\textsf{ᵛᵒᶜᵃˡᵒⁱᵈˢ}}$ <br>
+$\color{#FECEDE}{\textsf{ᴀɴɪᴍᴀʟ ʜᴏꜱᴘɪᴛᴀʟ ᴀɴᴏᴍᴀʟʏ}}$ <br>
+
 <table>
   <tr>
     <th>
