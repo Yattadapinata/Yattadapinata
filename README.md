@@ -8,6 +8,8 @@ creds to @RingmasterAI for table text
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=D770A3&width=462&lines=Candy+candy+caNDY%2C+CANDY+FOR+ALL!!!;AHAHAHAaaa...+Thought+of+something+funny!;BACKFLIPS%2CFRONTFLIPS%2CSUPER+COOL+FLIPS!!!;PHEW!Good+thing+my+tail+hasn't+been+TANGLED!)](https://git.io/typing-svg)
 
+  $\color{#F5D8A3}{\textsf{Yatta Fiction kin⋆ }}$ <br>
+
 <p align="center">
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
