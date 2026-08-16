@@ -2,10 +2,6 @@
 creds to @RingmasterAI for table text
 
 -->
-<img width="2044" height="2072" alt="IMG_۲۰۲۶۰۸۱۴_۲۲۲۳۴۶" src="https://github.com/user-attachments/assets/716161db-2482-471f-8a20-db4d712a99d7" />
-<img width="1620" height="1179" alt="IMG_۲۰۲۶۰۸۱۴_۲۲۲۴۰۶" src="https://github.com/user-attachments/assets/a178374b-92fa-44ad-ba3c-0c9ba1b3f5db" />
-<img width="1432" height="1409" alt="IMG_۲۰۲۶۰۸۱۴_۲۲۲۴۰۶6" src="https://github.com/user-attachments/assets/a76a20cf-425d-4039-9636-b52ec509e5c4" />
-
 <div align="center">
 <p align="center">
 <img src="https://visitor-badge.laobi.icu/badge?page_id=pinata-yatta.visitor-badge&left_text=Yummy%20candyes&left_color=%23E4AF7C&right_color=%23D7718E" alt="visitor badge"/>
