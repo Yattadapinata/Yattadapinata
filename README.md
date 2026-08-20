@@ -14,7 +14,8 @@ creds to @RingmasterAI for table text
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
 
-<img width="735" height="476" alt="image" src="https://github.com/user-attachments/assets/ab89bfe0-9060-4ba2-8ab5-ed67862beca1" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/4929d4af-0c74-47a1-837a-372f9ef681f5" />
+
 
 
 
@@ -23,7 +24,7 @@ creds to @RingmasterAI for table text
     <th>
       $\color{#303030}{\textsf{ABOUT ME!!}}$ <br>
       <br>
-  $\color{#FDA6E0}{\textsf{call me Kuro}}$ <br>
+  $\color{#FDA6E0}{\textsf{call me Kuro or yatta }}$ <br>
   $\color{#CBDCF6}{\textsf{ֆɦɛ / ɦɛʀ / ȶɦɛʏ⋆๑}}$ <br>
    $\color{#FEF3CE}{\textsf{ᴘᴀɴꜱᴇxᴜᴀʟ !! ꔛ}}$ <br>
   $\color{#FEF3CE}{\textsf{нєу ѕιgη αтα !!}}$ <br>
