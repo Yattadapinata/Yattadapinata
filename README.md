@@ -14,13 +14,13 @@ creds to @RingmasterAI for table text
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=D770A3&width=462&lines=Candy+candy+caNDY%2C+CANDY+FOR+ALL!!!;AHAHAHAaaa...+Thought+of+something+funny!;BACKFLIPS%2CFRONTFLIPS%2CSUPER+COOL+FLIPS!!!;PHEW!Good+thing+my+tail+hasn't+been+TANGLED!)](https://git.io/typing-svg)
 
   $\color{#F5D8A3}{\textsf{Yatta Fiction kin⋆ }}$ <br>
-<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/00d27d9d-2cb2-440b-a16c-3f043666b0b5" />
+<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/79bf73dd-131f-49ca-8d8d-b8387ff76a14" />
 
 <p align="center">
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/4929d4af-0c74-47a1-837a-372f9ef681f5" />
+<img width="736" height="414" alt="854885108eedaf137e045bd395eeb8f8" src="https://github.com/user-attachments/assets/07ba3e5a-c0c3-4bb9-bf3a-a2f8b2483f7c" />
 
 
 
