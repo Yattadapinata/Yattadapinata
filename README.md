@@ -3,12 +3,18 @@ creds to @RingmasterAI for table text
 
 -->
 <div align="center">
+<img width="445" height="97" alt="7aaf04ea02fd3d8c2d11d7304455af25-removebg-previeww" src="https://github.com/user-attachments/assets/8dd147b7-4ba1-4cbf-9067-19ac18f53c20" /><img width="445" height="97" alt="7aaf04ea02fd3d8c2d11d7304455af25-removebg-previeww" src="https://github.com/user-attachments/assets/d33664bb-bcbb-413b-91b1-051c9d53f3f7" />
+
+
+
+
 <p align="center">
 <img src="https://visitor-badge.laobi.icu/badge?page_id=pinata-yatta.visitor-badge&left_text=Yummy%20candyes&left_color=%23E4AF7C&right_color=%23D7718E" alt="visitor badge"/>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=D770A3&width=462&lines=Candy+candy+caNDY%2C+CANDY+FOR+ALL!!!;AHAHAHAaaa...+Thought+of+something+funny!;BACKFLIPS%2CFRONTFLIPS%2CSUPER+COOL+FLIPS!!!;PHEW!Good+thing+my+tail+hasn't+been+TANGLED!)](https://git.io/typing-svg)
 
   $\color{#F5D8A3}{\textsf{Yatta Fiction kin⋆ }}$ <br>
+<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/00d27d9d-2cb2-440b-a16c-3f043666b0b5" />
 
 <p align="center">
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
