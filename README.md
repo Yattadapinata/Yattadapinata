@@ -3,8 +3,7 @@ creds to @RingmasterAI for table text
 
 -->
 <div align="center">
-<img width="445" height="97" alt="7aaf04ea02fd3d8c2d11d7304455af25-removebg-previeww" src="https://github.com/user-attachments/assets/8dd147b7-4ba1-4cbf-9067-19ac18f53c20" /><img width="445" height="97" alt="7aaf04ea02fd3d8c2d11d7304455af25-removebg-previeww" src="https://github.com/user-attachments/assets/d33664bb-bcbb-413b-91b1-051c9d53f3f7" />
-
+<img width="445" height="97" alt="7aaf04ea02fd3d8c2d11d7304455af25-removebg-previeww" src="https://github.com/user-attachments/assets/8dd147b7-4ba1-4cbf-9067-19ac18f53c20" />
 
 
 
