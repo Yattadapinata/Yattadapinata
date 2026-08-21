@@ -32,7 +32,7 @@ creds to @RingmasterAI for table text
 </tr>
 </table>
 
-ㅤ[**𝓐𝓽𝓪𝓫𝓸𝓸𝓴 !!**](https://pinata-yatta.atabook.org)
+ㅤ[**𝓐𝓽𝓪𝓫𝓸𝓸𝓴 !!**](https://uattadapinata.atabook.org)
 <p align="center">
 <img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" /><img width="240" height="20" alt="4mp-6634" src="https://github.com/user-attachments/assets/1b73527b-0350-431f-ad76-b39831f80642" />
 
