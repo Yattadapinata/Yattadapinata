@@ -24,12 +24,11 @@ creds to @RingmasterAI for table text
 
 
 
-
 <table>
   <tr>
     <th>
       $\color{#303030}{\textsf{ABOUT ME!!}}$ <br>
-      <br>
+
   $\color{#FDA6E0}{\textsf{call me Kuro or yatta }}$ <br>
   $\color{#CBDCF6}{\textsf{ֆɦɛ / ɦɛʀ / ȶɦɛʏ⋆๑}}$ <br>
    $\color{#FEF3CE}{\textsf{ᴘᴀɴꜱᴇxᴜᴀʟ !! ꔛ}}$ <br>
